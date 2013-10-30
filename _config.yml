@@ -1,1 +1,19 @@
-permalink: none
+title: A Beautiful War
+tagline: A story about two planets
+permalink: /:categories/:title
+
+owner:
+  name: Fahd Butt
+  avatar: https://pbs.twimg.com/profile_images/3643438231/24a008a42cd122a1542f229f6b559fef_bigger.jpeg
+  bio: "I also am"
+  email: fahd828@gmail.com
+  twitter: fahdoo
+
+# Links to include in top navigation
+# For external links add external: true
+links:
+  # - title: About
+  #   url: /about
+  - title: Fahdoo
+    url: http://fahdoo.com
+    external: true
