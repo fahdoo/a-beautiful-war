@@ -78,19 +78,85 @@ Aram's hand squeezed his right pocket. This was also not the right time.
 
 "Won't you introduce me to your family, Station Alma?" interjected the uniquely dressed man, hoping to avoid an incidence of infanticide in front of a crowd of very well connected people.
 
-_They are led to the staging area where Alma is chatting with Mazar. Aram notices two girls playing nearby. Arcan teases Aram about the girls. Aram tries to ignore him and waits till Alma comes to them. They all wish her good luck. Alma introduces Mazar to the kids and Mazar introduces his family to them. Aram and Mara, meet for the first time. Phea comes up and introduces herself, proclaiming she's the daughter of the Metastation._
+"You've met Apart" - "Why yes good to see you again" - "And my two boys Arcan and Aram, who seem to be blissfully unaware of the significance of a person's first Proximity."
+
+The man kneeled down, eye to eye with Aram and placed his hand on Arcan's shoulder. "Well, I'm sure these young men will appreciate it by the end of the night." He quickly sprang up and struck a big smile towards Alma, "And what's a little fashion faux pas but the next Cycle's most popular trend. In fact, I will join them so they don't feel out of place." With that he took off his stringy thin tie and placed it in his right pocket, completely indifferent to Alma's shocked face which led Apart to burst out laughing. "Oh Mazar", Apart said pausing to laugh again, "if there's one day you can get away with that its today."
+
+This exchange was on the precipice of turning into a thoroughly awkward conversation, when a woman approach from behind Mazar. Her offset style and the matching Culture pattern under her eyes suggested to Aram that she was his wife. "Come Mazar, we should leave Alma alone, she must need to prepare for her speech."
+
+"Well, before I overextend my welcome, I'll take my wife and girls to the viewing area," Mazar said while he simultaneously looked around "where _are_ the girls Merida?" 
+
+As if on cue, a young officer, in the same uniform as Opira came holding two girls, one in each hand. "Sir, I'm sorry, but these are yours I believe?" 
+
+Mazar sighed, looked at the girls pretending to be innocent, and smiled, "why yes, I do believe they belong to us. And I believe there is a good story to go along with them."
+
+The young man hesitated to say as he let the girls go, but noticed Alma's inquisitive look, "these girls were caught trying to go up to Sifr."
+
+"Sifr!?", almost everyone but Aram said in shock, which almost threw the young officer off-balance. He stuttered, "the monument ... the sphere ... not the planet, of course."
+
+Alma dismissed him with a gesture and sternly looked towards Mazar, "I hope you will have a better handle on your company than your daughters."
+
+Mazar gave an unseemly nervous laughter, "there must have been some misunderstanding, I'm sure they just wanted some ... fresh air?"
+
+"Why is he wearing slippers?!", exclaimed the youngest one that belonged to Mazar and Merida, while pointing a straight edged finger that seemed to end at Aram's feet. Aram thought that was strange and so he naturally, like the rest of them, looked down. 
+
+"Oh," was all Aram could really say at that moment. 
+
+"Kid you are going to get it now!" said Arcan with much joy while a spattering of laughter came from the others except for Alma.
+
+Aram looked at the girl with the finger, who gave him a sly smile. He wanted to be mad at her for breaking an unspoken, unagreed upon bond between children that only existed in Aram's mind. But he couldn't help but smile back at her. Because he appreciated how observant she was and how she had masterfully turned the attention from her and her sister's security breach to his absent-minded fashion.
+
+"This is exactly what I don't need at this moment," Alma said sternly and directly to no one in particular. "Thank you for coming to see me, but I need some time to prepare about the biggest moment of my life, and not this boy's...", Alma trailed off, shaking her head, and motioning towards Opira. "Take them to their spots, I will see them after the Ceremony is complete."
+
+Mazar took this as sign for a similar exist, "we'll have to continue our discussion some other time Station Alma, I'm glad you have trusted in me and More Inc to help deliver your ambitious plans for the next Cycle."
 
 ***
 
-_Back at the viewing area, Aram's eyes search for Mara in the crowd. He feels her presence and her searching for him. The speeches begin, with the Station of Sifr opening the talks. The Station of Sifr talks about the planetary Proximity between Aique and Sifr, its meaning to them and reminding everyone about the cycle of life._
+"Dad, why do they keep calling Mom 'Station Alma'?", inquired Arcan as they were led by Opira to their reserved spot in the viewing section. This question seemed to upset Apart, "have you not been paying any attention to what we've been discussing at home for the last little while? Its also kind of what everyone in the news has been reporting on."
+
+Aram thought it was an appropriate time to show up his brother. "Mom's an important person now, so they call say 'Station'", as he looked towards his father for approval.
+
+"Yes. Well.", Apart formulated his thoughts, "she has been elected by the previous Stations to the position of the Station of Defense for this upcoming Cycle. That is why she is important. She gets to protect us."
+
+"Who does she get to blow up?", Arcan asked excitedly.
+
+"No one! It's not a Station of Offense Arcan!", Apart raised his hands in frustration. "It was a position instated several Cycles ago when all the Cultures ended their war with each other. The Station of Defense works on things that will prevent us from blowing each other up."
+
+"The last Station of Defense is the new Metastation Pastel, right dad?", Aram added having saved this morsel of information from a newscast he consumed just a few days ago.
+
+"Yes, he'll be speaking last, after all the other Stations", replied Apart as they neared their seats.
+
+As they sat down, Aram took a look behind them. It was true, he could not see any grass anywhere, just eyes staring up towards him. He squinted. He wondered if the girl was looking back at him. He was sure she was, and so he smiled.
 
 ***
 
-_The Station of Defense, Alma, goes up next and announces the successful deployment of the Sky Mesh, which at the nights viewing will light up the skies. She also announces a new 20 year initiative to send an exploratory rocket. Both of these announcements receive an ovation but a small vocal crowd, the Mystics, protest._
+The ceremonies began with the Station of Sifr, who introduced himself as Alal, an elder. Aram had not read much about him but wrote down what he could understand.
+
+Alal spoke: "I have spent my life in reverence to Sifr and our relationship with this distant gem that chooses to visit us every generation. It is a kiss that is never made, but tantalizes with its...proximity." A word which had gravity for the crowd and led to chants of the word in smatterings throughout the millions that were standing there in the Garden of Decisions. Alal continued, "the Cycle of our two planets, Aique and Sifr, are a reminder that what actions we take will come back around to us. That we may change from one generation to another but remain simply the same. The beauty we see reflected in its bright light is an ideal we can strive towards, each Cycle, however many Cycles it may take."
+
+"This is so boring!", Arcan said only loud enough for his father and brother to hear. He tilted his head up to the sky, soaking in the warmth of the sun, "when are we going to see the Fireshakers and Soundjammers?". "After sunset Arcan, now keep quite and listen," Apart impatiently responded.
+
+Several other Stations came up to speak their turn, thanking their previous counterparts and showing gratitude for being selected for this prestigious and powerful rank.
+
+The Station of Defense, Alma, was finally up next. Arcan and Aram perked up, excited to see their mother up in front of the countless population. The significance of this moment only now hit Aram. He realized that their family and his life would be very different after this point. It probably wouldn't be better in his mind, and they weren't starting at a high point to begin with. Still, Aram felt he had to honor this moment for the prestige of their family. And he took out his tie and wrapped it around his little neck making several knots that had no real purpose.
+
+Alma confidently walked onto the spherical stage that represented Planet Aique, but had a moment where she seemed to have been overwhelmed. Only Aram seemed to have noticed. It was not due to the millions of people in the crowd, but the sphere of the representation of Planet Sifr hanging right above her. It was an intricate mesh of glass, that would seem to capture the entirety of the crowd and place them everywhere above and around Alma. She closed her eyes for a second and stepped up towards the podium.
+
+"People of all Cultures, I stand before you today because together we decided a few Cycles ago that we would rather live together in one world than apart in separated enclaves." She paused, thinking of adding a caveat, but refrained. "I fought in those battles and it saddens me that we had to hurt each other to learn how to love one another. As your newly elected Station of Defense, I hope our love will stay bonded like the two orbits of Aique and Sifr, and we can protect ourselves from our pasts."
+
+"And we must look towards the future to learn how to preserve our heritage. The problems we face are quite grave. Our wonderful planet cannot sustain all of our people at the rate we are consuming it. But I am not here to tell you what you and cannot have. I am here to make a promise to you. Our world's resource problems will be solved creating a safe and plentiful future for many more Cycles of generations. At the next Proximity I promise we will send our best scientists and researchers on an exploratory mission to the Planet Sifr. We are calling it the Sifrocket."
+
+Alma stopped here. It was not written on her speech for her to pause but her natural instincts as an orator led her to this conclusion, validated by the immediate thrilling shrieks and excited stupor of the vast many people from all the Cultures around the world. Here to witness the Proximity, but now witnessing more than a giant rock in the sky, but a vision for the future.
+
+Aram felt proud. This was what she had been working so hard to put together. Why she had not been home most days. He felt it was a worthwhile sacrifice, but one that would continue. It created a tinge of sadness in him. He had to grow up. He was a grown up already, but now he had no choice.
+
+The acoustics of the stage reverberated the crowd's voice perfectly. It also made Alma notice that pockets of disgruntled voices. It was no surprise that there would be people that would oppose this plan. In fact, she avoided eye contact with the Stations already sitting on stage as she knew there was one amongst them who cared the most to oppose this plan.
+
+"This mission will be the most significant event in our history. It will be looked upon as a turning point by future generations, and you wile a part of it. The Sifrocket will be a project that this administration will give highest priority to," Alma said with conviction. "I now have the esteemed honor of inviting on stage your newly elected Metastation Pastel!"
 
 ***
 
-_The new Metastation, Pastel, delivers the final speech. He talks about the unifying of all Cultures and having the Sky Mesh be a reminded for all the Cultures to live in peace and harmony; and to protect themselves from a repeat of past conflicts with the Isolates._
+_The new Metastation, Pastel, delivers the final speech and announces the successful deployment of the Sky Mesh, which at the nights viewing will light up the skies. He talks about the unifying of all Cultures and having the Sky Mesh be a reminder for all the Cultures to live in peace and harmony; and to protect themselves from a repeat of past conflicts with the Isolates._
 
 ***
 
