@@ -1,7 +1,7 @@
 ---
 layout: home
-title: "Recent Posts"
+title: "Chapters"
 tags: [Jekyll, theme, responsive, blog, template]
 image:
-  feature: typewriter.jpg
+  feature: features/soft-trees.jpg
 ---

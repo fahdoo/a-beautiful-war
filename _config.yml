@@ -1,7 +1,7 @@
 title: A Beautiful War
 tagline: A story about two planets
-permalink: /:categories/:title
-url: http://fahdoo.github.io/a-beautiful-war/
+permalink: :categories/:title
+url: http://fahdoo.github.io/a-beautiful-war
 
 owner:
   name: Fahd Butt
@@ -9,12 +9,13 @@ owner:
   bio: "I also am"
   email: fahd828@gmail.com
   twitter: fahdoo
+  disqus: abeautifulwar
 
 # Links to include in top navigation
 # For external links add external: true
 links:
   # - title: About
   #   url: /about
-  - title: Fahdoo
-    url: http://fahdoo.com
+  - title: "@fahdoo"
+    url: http://twitter.com/fahdoo
     external: true
