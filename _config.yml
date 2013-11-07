@@ -1,6 +1,6 @@
 title: A Beautiful War
 tagline: A story about two planets
-permalink: :categories/:title
+permalink: /:categories/:title
 url: http://fahdoo.github.io/a-beautiful-war
 
 owner:
