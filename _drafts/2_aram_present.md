@@ -1,6 +1,0 @@
-# Chapter 2 - Year 80
-
-- Zubber asks Aram, "What is it feel like? How does it work?". Aram explains the Phosphene and the Archive Immersion experience. He mentions the dangers of it - being too immersed and your own emotions affecting the experience. The immersion doesn't just look at the source person's memories but will aggregate those that are in proximity. So its not a true representation of that person's feelings or perspectives, but an aggregate manifestation.
-- Zubber asks "Why that day?". Aram says "That was the day I met her". "So it may not help with our search". "We have a billion experiences, I might die any moment, so I'm starting with the moment I fell in love. But I do believe that was the day it all began."
-- Qafa enters asking how everything is going and if they need anything. She gives an update about their journey. They are still stranded.
-- They discuss whats next in terms of the Phosphene Immersion. Aram says his memory about his own life has faded so the best is to start there and branch off from any clues they might find.
