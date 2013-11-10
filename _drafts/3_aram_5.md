@@ -1,7 +1,199 @@
-# Chapter 3 - Aram (Year 5)
+# Chapter 3 - Aram - Cycle 1
 
-- First day at the Grand Central Academy, Aram is with his friend Costram. They feel excited yet nervous. Aram talks about how he doesn't really want to be there because he just wants to write and has this freelance position as a reporter.
-- Inside the Auditorium for Initiation, Aram notices Mara. It was the first time he saw her since the Proximity. He tells Costram "thats Her." Costram naturally makes fun of him. Mara makes eye contact, and smiles as before. "She remembers me!" exclaims Aram.
-- After the Initiation, Mara and Phea come up to Aram and Costram. 
-- Inside Aram's classroom, their Teacher, Cherin, tells them that the Teacher, Themea, listed on their schedules is no longer available.
-- Aram reads an article about the Vanishings and wondered if his missing Teacher was part of it. He thinks about sneaking into the Teacher's Office to find more. Mara see's him and wants to help out. They both sneak in and try to find records. They find the house address of the Teacher and decide to skip class the next day to go to that address. They find nothing there. 
+The trip over the Peraxis Bridge towards the Core of Proxacity always left an impression on Aram. He hadn't really been on many other bridges let alone one of this magnitude and brilliance of design. He made sure to take in the blur of houses and street life that passed below, which many others would gloss over, distracted by other trivialities.
+
+Arcan had been making this trip regularly that he seemed desensitized to it. He had his headphones set in and lost in some music. Aram had gotten admission into the All Cultures Academy of Proxacity and today was the initiation for all the new kids. Arcan wasn't happy about having to share the ride with his younger brother and especially not having him at the Academy.
+
+"You're not going to survive this. This isn't like the funhouse of education that you've been going to. This is serious." Arcan never let a moment go to instill fear in Aram about the pressures of the Academy. Aram didn't let it show that he was nervous inside. But the tight grip he had on his bag and the intense concentrative stare out the window down below the bridge was a sign as any that he was anxious.
+
+"Don't worry Aram, you will be just fine," said their driver Neem, "this will be no problem at all for you." Alma had thought it was best for their safety to have a personal driver instead of letting them take the public shuttles into Proxacity. Arcan was only slightly happy about this, but had still hoped for a full motorcade with armoured accompaniament.
+
+They arrived at the Academy and Aram could feel himself shrink when he saw the brilliant glass facade of the entrance that let in the light of the suns and showcase the thousands of kids, younger and older, that were assembled. He adjusted his glasses and opened his door and stepped out, only turning back in to look at Neem with a forced smile, "thanks Neem, see you in the afternoon."
+
+"Okay this is going to be a lot for you, just don't try to get in any one's way," Arcan advised. They made there way over the steps and inside the atrium. Arcan pointed to a section in the middle with grass and trees with similarly looking lost kids. "That. That's the Mound, go over there with the other sheep, that's where the initiation starts." Aram nodded and started walking. "Hey," called out Arcan, his voice sounding different from usual, "its nice to see you growing up little bro."
+
+***
+
+Aram sat down on the grass. He observed the shiny white marble floors surrounding the Mound, and the glass walls around the entrance that gave a magnificent view of the towering buildings setting the skyline of Proxacity.
+
+"Hey!" a boy shouted towards Aram.
+
+Aram turned around to look over his shoulder, the voice sounding vaguely familiar.
+
+"Its Aram isn't it?" - "Yes," he squinted, "Oh, I recognize you from somewhere, you're Costram right?"
+
+"Yeah! We met some time ago at the Office of the Stations, where your mom, Station Alma works. My dad's the Project Lead on it for More Inc, and he came to drop off some early designs and prototypes."
+
+"Oh right, it was one of those 'take your children to work days'. That was one boring meeting," Aram pretended - he secretly did enjoy hearing the plans and technical details that were presented.
+
+"You can only imagine what dinner is like at my place every night!" said Costram.
+
+There were about a hundreds kids on the Mound there for the Initiation. An elderly man with a magenta robe stepped onto the mound and smiled at the kids as he made his way to the center. Aram recognized the man from somewhere before, he had seen him several times, but only from afar. Aram's observant eyes followed the man walking up the grass in his robe, and for a split second his eyes trailed behind, and before he could catch back up he found himself locked in a gaze with a girl on the other side. The girl slyly smiled back and Aram, dumbfounded, didn't. And she looked back at the old man.
+
+"She remembers me," whispered Aram. To which Costram was quiet confused, and whispered back, "I have no idea what you are talking about. Who remembers you?" Aram remained quiet but briefly remembered how to smile before having a look of shock on his face. "What is it?" Costram asked with concern. Aram looked down at his feet. "What's the matter Aram," Costram was whispering as loud as was possible.
+
+Aram sighed in relief, "I'm wearing shoes. I'm wearing shoes Costram!"
+
+"You're a weird fella, you know that." laughed Costram.
+
+The kids on the Mound quietened as the elderly man in the robe began to speak.
+
+"By the Crossing of the Planets, I wish you all of the new Batch a good day and a better Cycle. As some of you may know I am the Station of Education, Edamar, the Head of the All Cultures Academy of Proxacity. The few of you have been selected from various institutes of education across the Cultures to be part of this great Academy where children of all Cultures can learn together."
+
+"The Academy is a place where you will learn not by what an Educator tells you, but by what you will teach each other. So its important that you approach this experience with the mindset of learning from and teaching your peers. You will receive from this that which you give."
+
+The kids on the Mound cheered as Edamar made his way off the mound. Aram wasn't sure if he should try to look at the girl again, but his eyes didn't wait for his mind to make a decision and immediately went towards her. He took the moment to take in her beautiful pattern of pearl blue and sea green spirals, the same one he had engraved in his mind, before following the old man and before the girl may realize his intense gaze.
+
+Costram nudged Aram, "not even the first day and already have your eyes set on someone. Come on, we're supposed to go find our Facilitation Group now in the Initiation Hall. Which group are you in?"
+
+"I'm with Themea, you?" - "Hey, we're in the same group!"
+
+***
+
+The new Batch of kids were then guided to a hall where they went to preassigned groups to be greeted by a Facilitator. Aram and Costram went towards their Facilitation Group, but there was no Facilitator and the kids were a bit aimless. Aram looked towards the other groups, trying to find her. Costram joked, "already thinking of jumping ship Aram? Maybe we're supposed to facilitate ourselves like old man Edamar said. Maybe we're the 'special' group!"
+
+"You both do look 'special'", said a voice from behind them. They both turned and were taken by surprise by this girl with a vibrant bright pattern. "Yes, yes, it is quite intricate isn't it and you haven't seen anything like it."
+
+"Sorry for staring," Costram apologized, "by it is rather lovely." This made the girl blush, though you could barely see it under her pattern.
+
+"Do you both not know who I am! How terribly unfortunate", she continued matter of factly, "I am after all the Metastation Pastel's daughter."
+
+She leaned in towards Aram, "My dad is your mom's boss. Just, for your information."
+
+"Erm, well, nice to meet you?" Aram said.
+
+Costram interjected, "You're dad isn't directly my dad's boss, but I suppose in a way he is everyone's boss."
+
+Phea added with a smile, "I'll tell you boys a secret. He's not really running things. I am. I am the real Metastation."
+
+"Oh, I should introduce you to my new friend," Phea said excitedly. She left quickly into the crowd of several dozen kids in their Facilitation Group who were all mingling with each, not worried that they hadn't had a Facilitator while the other groups had already left.
+
+Aram and Costram looked at each other. "Well, she's something isn't she, quite a bundle of energy," laughed Costram.
+
+"Boys boys! I'm back," Phea came back, pulling on her new friends arm towards Aram and Costram. "This is my new friend Mara. I believe her dad is actually your dad's boss," she looked towards Costram which surprised him. "And don't worry about how I know these things, I know a lot of things."
+
+Aram felt his body stiffen, his throat dried up completely, and his eyes glazed over. To Aram, the air seemed to have been vacuumed from the Initiation Hall. Mara looked at Aram, her lips curved up, the pattern on her cheeks lifted upwards with her smile. She pointed towards his feet, "I like your shoes."
+
+"I'm Costram, and should we just call you Metastation?"
+
+"Oh, no need to be formal," Phea said dead seriously before smiling, "Phea. I'm Phea. You guys can remember that right. And what's your name quiet one?"
+
+Everyone looked at Aram, while he tried to get over the surprise of seeing the girl he met at the Proximity and finding out her name. "Mara. I mean, Aram, of course."
+
+The others laughed, and Mara said back, "Well, I suppose our names are very similar Aram!"
+
+A young man hastily entered the Initiation Hall and made his way torwards the last remaining group. "Hey sorry for the wait. There seems to have been a situation," he caught his breath, "I'm Cherin, and I'll be your Facilitator."
+
+A studious looking petite girl with a surprisingly loud and sharp voice asked Cherin, "Facilitator Cherin, do you know what happened to our assigned Facilitator, Themea?"
+
+Cherin paused to think of an answer, he genuinely was a bit lost. "Well I haven't been made aware of the reason or happenings. I just got a last minute request to fill in. As far as I know Facilitator Themea didn't show up today and they've been trying to reach her. I'm sure its nothing to worry about, she must have forgotten to set her alarm!" he added quickly before gesturing the group towards the hallway.
+
+"Okay we'll make our way towards our Facilitation Room," Cherin announced to change the subject and move on with the day, "which will take you a while to remember how to get there, but just remember that its near the Statue of Paper, under the Archway, past the Wall of Innovation. But as we make our way there it looks like I have to give you a tour of all the various facilities. We have several labs and workshops, study rooms and libraries for different subjects, the Center for Discourse, an exercise facility with sport fields and a cafeteria to fill up on energy for it - its important to keep the body active as the mind - a rooftop garden, you can actually get lose in there - and the Mystics Chamber, if you want some spiritual time." He shuffled through some paperwork in his hands, "I'm sure there's other things I'm missing, but you'll eventually bump into them when the time comes."
+
+***
+
+The group followed Cherin as he talked about the various facilities and the history of the building, the circumstances under which the Academy was built.
+
+Aram whispered to Costram, "this has happened before you know."
+
+"Yeah, I'm quite sure we're not the first Batch to be Initiated," Costram laughed.
+
+"No, I meant the Facilitator not showing up. I've been reading in the newscasts about people vanishing. Its only started happening recently."
+
+"Really? I haven't heard anything. Well I don't really read the newscasts, but I'm sure I would have heard about it. Do you think its a 'thing'?"
+
+"It hasn't been put together into a 'thing' just yet, but I've read isolated reports from different newscasts about it. Eventually someone will put together that its a trend. I'm sure of it. Its definitely some sort of..."
+
+"What are you two whispering about?" butted in Phea who was walking with Mara behind them, "are you two keeping secrets from us already, I thought we were now friends!?"
+
+"Oh nothing Phea. I'm sure you already know all about it! People disappearing and all. Aram was just about to share his theory."
+
+"Oh," Phea quietly said to herself.
+
+"Wait, do you know something about this?" added Mara.
+
+"Well. I'm really not supposed to say. This is not really the place to share confidential information."
+
+"I'm sure if you had information so would Aram, his Mom is Station Alma," Costram tried to call Phea's bluff, "its kind of important for her to know if people are missing."
+
+"Yeah, you're right," Phea nodded, "I don't know anything about people vanishing."
+
+Phea didn't seem to be the kind of person to cave in easily, even if it were for a non-serious matter. Aram felt like there was information she had that he didn't and this got him curious and interested. He asked "Listen, I've been tracking all these events, there's about half a dozen. Its more than a coincidence. My mom doesn't talk about the affairs of the Stations with me but it seems like you do with your dad. Have you heard anything?"
+
+"Okay well, this is like, if I tell you, I can get in trouble for this you know. They'll have to imprison me and torture me for being a traiter."
+
+"You just love being dramatic. You don't really know anything Phea," Mara goaded Phea.
+
+"Listen," Phea said seriously, "there have been more missing people than have been reported in the newscasts okay. Some of them have been reported but others have been kept quiet, some more high profile ones. They just say that so-and-so has been sent on a special project somewhere and no one asks."
+
+"What about the Witnessers?" asked Aram.
+
+"That old magic oracle cult thing?" Costram replied in jest.
+
+"I don't know much about them," Phea said, "but I heard the Stations can ask them to help track down crimes. They can look into what happened the moments before they left."
+
+"So they may have already asked? Maybe they know and are tracking down the criminals." said Mara. "Maybe they're listening in on our conversation and know that you're giving away confidential secrets of the Stations!" she teased Phea, who actually looked a bit concerned.
+
+"Hmm, so we know that Facilitator Themea didn't show up today. So the lead is fresh and it won't be in the newscasts till later, if at all. Maybe the Witnessers have already solved the crime, but maybe, they haven't found anything." Aram was uncharacteristically excited. Maybe part of it was that he wanted to impressed Mara, maybe he really was intruiged by the missing Facilitator. The other three barely knew him but realized that this sounded like a different Aram than from just moments ago.
+
+"Well, lets do something about it then!" Mara didn't know what it would mean, but she wasn't one to go outside her comfort zone.
+
+Aram thought for a moment. "I don't think they'll notice if we were missing from this tour."
+
+They were at one of the libraries at this point of the tour and they remained back as the tour headed off.
+
+Costram kept looking towards the group that was leaving. He was a bit hestitant. "Okay, so if we're doing this, what is this. I'm not too fond of getting on trouble on the day of the initiation."
+
+"Listen, you're with me, the Metastation's daughter, we won't get in trouble. If we do, I'll get us out of it."
+
+"Or they'll just punish us and let you go."
+
+"Yeah, or that," Phea said with a smile.
+
+Mara just had to one up Phea, "well, I'm sure my father could just buy this school. Its practically built by his donations anyways. I'm sure you guys noticed the big More Inc logo near the entrance that listed the sponsors? Yeah."
+
+Aram meanwhile had been constructing a plan in his head. "Okay, here's what we do. We have to find out where Facilitator Themea lives."
+
+"And then?" the other three replied simultanouesly.
+
+"And...then we go there." Aram stated plainly.
+
+"Well, breaking into a missing Facilitators house during the day of the Initiation. I like it." Mara said with a smile.
+
+Costram sighed, "this sounds like a really bad idea." Phea pinched him "hey, looks like you're going to be the guy in the group who is always going to be complaining about everything."
+
+"No, don't typecast me already! Okay, no, I'm all in on this investigation. Aram, how do we find out her address?"
+
+"There's bound to be an office where they keep records of everyone that works here. And there will be someone who will be an administrator of those records. One of you will just have to distract her. I think Phea can do a good job at that." Phea smiled and Mara felt a bit miffed that Aram didn't think she could be distracting enough.
+
+They made there way around the hallways till they found a map of the Academy. They located the  convenientaly labelled Office of Records and made their way to it. The room was fashioned like a library. There were rows of shelves with binders towards the back and a lady sitting at the desk.
+
+Phea went up to the lady behind the desk and perkly introduced herself, "Hi, I am Phea, and you are Lumiya," she read off the name badge on the table. "You may not know me, although you should, but I am the Metastation Pastel's daughter. Yes. I am kind of important. I wanted to review my information, cause its important that there aren't any mistakes. I don't want to find out when I graduate that my name was spelled all wrong!"
+
+"Does she ever hear what she says?" Costram whispered while they secretly watched her outside the office. "Oh don't fool us Costram, you find it endearing." said Mara.
+
+Phea asked the lady to see her records and make sure the information in it was correct. Lumiya led her to a section where the students informations were kept. Then Aram made his way to the other sections and tried to find the one for the Facilitators, while Costram and Mara watched. Aram scanned through the alphabets, kneeling down on the floor where the T's were. His fingers slowly sliding across the names as in the background he heard Phea and Lumiya talking about how the Metastation could help improve the education in the Middlerings where Lumiya lived.
+
+"Here it is," a whisper came. Aram froze and turned his head. It was Mara, she had pulled out a binder. "Mara, wait, what are you doing here, I thought you were outside the office with Costram?"
+
+"Yeah, I'm not really a watcher. And you were taking too long. Anyways, Themea," she flipped through the pages inside and found one that listed an address. She wrote it down and put the binder back. "Okay, now lets get out of here. Looks like Phea will learn soon that everyone will want to give their advice on how to improve society to her. She might not want to be so important then."
+
+They all then grouped together and gathered in the corner of hallway.
+
+"Okay, nice job everyone," Costram said to the others, "I made sure to, um, keep watch." Phea laughed, "yeah thanks, I'm glad we didn't get raided by the Academy Police!"
+
+"Mara," Aram still sounded nervous everytime he said her name and tried to hide it, "lets have the address."
+
+They all looked at it, and Aram noted, "its just outside the Core, towards the Middlering."
+
+"Wait are you serious?" Costram nervously asked, "we can't go there."
+
+"You're being that guy," Phea noted.
+
+"Look, all I'm saying is, its not the safest place for some kids to go, even during the day."
+
+Aram tried to calm him down, "look you don't have to come. And its just on the transition between the Core and the Middlering. Its actually pretty close to the Academy, must be a 15 minute walk. What do you say?"
+
+Costram sighed, looked at Phea, who was smiling and nodding towards him. "Sure, if I don't go and all three of you vanish, I won't have any friends left."
+
+***
