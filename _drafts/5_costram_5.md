@@ -1,4 +1,4 @@
-# Chapter 6 - Alal - Year 5
+# Chapter 5 - Costram - Cycle 1
 
 - Alal is holding a meeting on a hill top. There's about 50 people there. In the crowd are Astral, Anda (and her baby Alea), Costram and Phea.
 - Alal talks about nature and bonds. About the push and pull between the two planets. The complete destruction of Aique and the pristine serenity of Sifr. That they would only do the same to it as they had to their own planet.

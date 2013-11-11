@@ -1,0 +1,5 @@
+# Chapter 6 - Aram - Present
+
+- Zash asks if Aram knew about the Vanishings now. Aram says there wasn't one reason but several. It all had to do with the technology to "black out" the brain implants. So there really wasn't a Reason, but he stumbled upon them throughout his life.
+- Aram mentions that there may be a path worth exploring, the "Alal issue". "Who was Alal?". He was a bit of an elder outcast of the "A" Culture. He was a spiritual leader of sorts, his group was referred to as the Mystics. They revered Sifr and did not want to taint it in any way, so they opposed the Sifr Rocket.
+- Aram tries to sync into Alma and Pastel's meeting but is unable to. Zash gets worried, "are you okay?". Aram explains that the Stations had an extra layer of encryption. It was usually reserved for officials for confidential meetings and other illicit purposes. It would require two Archivists to access. Zash says "hook me up!". "Out of the question. Its too risky. You can lose your mind. Not unless its absolutely necessary. We have other paths we can take for now. Lets find Alal."

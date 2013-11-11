@@ -1,4 +1,4 @@
-# Chapter 7 - Costram - Year 10
+# Chapter 7 - Alal - Cycle 1
 
 - Alal is hosting another meeting, this time with a smaller group of people on a rooftop (Astral, Anda, Alea, Phea, Costram and a few others)
 - Alal is having an argument with Astral while Costram looks on. Astral says that the Stations have been censoring their media, barging on their meetups, and they don't know who to trust anymore. The media is supportive of the Sifr Rocket - they are loosing the propaganda war against the Stations. Alal says revolutions take time and they wouldn't have a boot on their face if they were not doing something right.
